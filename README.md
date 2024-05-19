@@ -1,3 +1,1 @@
-UoS ORC
-
-Mostly hobby stuff. Still improving... perhaps.
+forced to program for free
